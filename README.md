@@ -1,2 +1,5 @@
 # Mossad
-Bibi is new Hitler
+Bibi is new <3 . 
+Israel is only democracy in middle east.
+
+dabghjdbjhadsgdghjsvftygf
